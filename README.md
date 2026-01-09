@@ -1,2 +1,0 @@
-# github-vr-tech
-sdfggdsggdsg
